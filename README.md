@@ -2,4 +2,4 @@
 
 [omg this is so adorable](https://www.tiktok.com/@by.imanx/video/7543728900170321207)
 
-i remember how confident you were in me, in april 2017, and that's what i keep going back to, thats what i remember
+i remember how confident you were in me and about me, in april 2017, and that's what i keep going back to, thats what i remember
