@@ -15,3 +15,5 @@ i remember how confident you were in me and about me, in april 2017, and that's 
 https://www.youtube.com/watch?v=nHIYYqmL_TY&t=181s
 
 ---------
+
+i can be so much: upset, ANGRY, very angry, confused, just really really confused, but i will wait for you, its just so annoying you cant respond to email, that makes me really angry its complete nonsense, it makes no sense but its just what it is 
